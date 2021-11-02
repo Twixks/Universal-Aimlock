@@ -1,5 +1,3 @@
-# Universal-Aimlock
-
 _eDOTotGy2HPtD2W4, Protected_by_MoonSecV2, Discord = 'discord.gg/gQEH2uZxUk'
 
 
